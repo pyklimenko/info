@@ -5,7 +5,6 @@
 ## Projects
 
 
-
 ## About Me
 
 Architect and teacher. Since 2009 I have been engaged in architectural practice.
